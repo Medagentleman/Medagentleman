@@ -33,4 +33,3 @@
 ## 📫 Как со мной связаться
 
 - 📱 Telegram: [@medagentleman](https://t.me/medagentleman)
--  Linkedin https://www.linkedin.com/in/medagent/
